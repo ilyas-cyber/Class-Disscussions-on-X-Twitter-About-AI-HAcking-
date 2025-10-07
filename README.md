@@ -1,4 +1,4 @@
-# Class-Disscussions-on-X-Twitter-About-AI-HAcking-
+# Disscussions-on-X-Twitter-About-AI-HAcking-
 World Class Disscussions on X (Twitter) About AI HAcking Please feel Free to Contribute all  if you found more useful ones.
 
 ### World-Class X Threads and Tweets on AI Hacking Discussions
